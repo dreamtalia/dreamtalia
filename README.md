@@ -14,7 +14,7 @@ i'm not well versed in hetalia, that's more kodiak's thing ... i'm into dreamtal
 
 *(but i do like sealand and lithuania :) )*
 
-i don't usually talk first, but i do love talking and once i stop i cant stop.
+i don't usually talk first, but i do love talking and once i start i cant stop.
 
 [i.](https://pronouns.cc/@MCPD) [ii.](https://bendrowned.atabook.org)
 
