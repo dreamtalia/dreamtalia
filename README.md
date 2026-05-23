@@ -1,7 +1,5 @@
 <div align="center">
   
-*DONT ASK ME ABOUT HETALIA IM A LARPER I ONLY OBSESS OVER DREAMTALIA*
-  
 ![japan moe](https://files.catbox.moe/gatpas.gif)
 
 ![benpurple](https://camo.githubusercontent.com/bc3cb0852690c7707bb43d04bc1d960036d4e40c51d53ba9ed35b7146db91527/68747470733a2f2f66696c65732e636174626f782e6d6f652f3563716776622e676966)
