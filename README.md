@@ -16,7 +16,7 @@ i don't usually talk first, but i do love talking and once i start i cant stop.
 
 **i dont like endo "systems" idgaf if you try to fight with me ill laugh at you and block you**
 
-[i.](https://pronouns.cc/@MCPD) [ii.](https://bendrowned.atabook.org)
+[i.](https://pronouns.cc/@MCPD) [ii.](https://autism.atabook.org)
 
 **⫘⫘⫘⫘⫘⫘**
 
