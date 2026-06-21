@@ -4,7 +4,7 @@
 
 ![benpurple](https://camo.githubusercontent.com/bc3cb0852690c7707bb43d04bc1d960036d4e40c51d53ba9ed35b7146db91527/68747470733a2f2f66696c65732e636174626f782e6d6f652f3563716776622e676966)
 
-  ˃ 𖥦 ˂ 16yrs ,, **find me @ docks or wherever [my goat](https://github.com/salmonvhs) is** ૮₍ ´ ꒳ `₎ა !
+  ˃ 𖥦 ˂ 16yrs ,, **find me @ docks or wherever my friends are!** ૮₍ ´ ꒳ `₎ა !
   
 autistic butch lesbian with a normal love for mark heathcliff from tmc. **(nonsharing)**
 
