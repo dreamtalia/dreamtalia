@@ -8,9 +8,9 @@
   
 autistic butch lesbian with a normal love for mark heathcliff from tmc. **(nonsharing)**
 
-i'm not well versed in hetalia, that's more dylan's's thing ... i'm into dreamtalia, especially world and hermit!
+i'm not well versed in hetalia, that's more dylan's's thing ... i'm into dreamtalia, especially world and hermit! *(but i do like sealand and lithuania :) )*
 
-*(but i do like sealand and lithuania :) )*
+i also like pokemon, madeleine phantasms, creepypasta/pokepastas, and marble hornets :)
 
 i don't usually talk first, but i do love talking and once i start i cant stop.
 
