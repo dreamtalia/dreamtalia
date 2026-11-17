@@ -1,20 +1,13 @@
 <div align="center">
   
-![japan moe](https://files.catbox.moe/gatpas.gif)
+**17 yrs young** ⦻ irl proxy with a love for turning creepy things cute <3
 
-![benpurple](https://camo.githubusercontent.com/bc3cb0852690c7707bb43d04bc1d960036d4e40c51d53ba9ed35b7146db91527/68747470733a2f2f66696c65732e636174626f782e6d6f652f3563716776622e676966)
+**find me @ docks or wherever my friends are!** ૮₍ ´ ꒳ `₎ა ! autistic butch lesbian with a normal love for mark heathcliff from tmc. **(nonsharing)**
 
-  ˃ 𖥦 ˂ 17yrs ,, **find me @ docks or wherever my friends are!** ૮₍ ´ ꒳ `₎ა !
-  
-autistic butch lesbian with a normal love for mark heathcliff from tmc. **(nonsharing)**
+i'm into dreamtalia, especially world and hermit! i also like pokemon, hetalia, madeleine phantasms, creepypasta/pokepastas, and marble hornets :)
 
-i'm not well versed in hetalia, that's more dylan's's thing ... i'm into dreamtalia, especially world and hermit! *(but i do like sealand and lithuania :) )*
+dni if you claim to be an endo system or support the idea of them ++ if you're @ the protree please :(
 
-i also like pokemon, madeleine phantasms, creepypasta/pokepastas, and marble hornets :)
-
-i don't usually talk first, but i do love talking and once i start i cant stop.
-
-**i dont like endo "systems" idgaf if you try to fight with me ill laugh at you and block you**
 
 [i.](https://pronouns.cc/@MCPD) [ii.](https://autism.atabook.org)
 
