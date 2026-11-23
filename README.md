@@ -2,11 +2,9 @@
   
 **17 yrs young** ⦻ irl proxy with a love for turning creepy things cute <3
 
- autistic butch lesbian with a normal love for mark heathcliff from tmc. **(nonsharing)**
-
 **find me wherever my friends are! i move frequently, but most commonly at docks or bakery entrance.** ૮₍ ´ ꒳ `₎ა
 
-i'm into dreamtalia, especially world and hermit! i also like pokemon, hetalia, madeleine phantasms, creepypasta/pokepastas, and marble hornets :)
+i'm into dreamtalia, especially world and hermit! i also like pokemon, hetalia, madeleine phantasms, creepypasta/pokepastas, mandela catalogue, everymanhybrid and marble hornets :)
 
 dni if you claim to be an endo system or support the idea of them ++ if you're @ the protree please :(
 
